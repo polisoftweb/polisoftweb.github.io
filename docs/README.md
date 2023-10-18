@@ -14,7 +14,6 @@ Polisoft WebLine; sigortacılık sektöründe ürünlerinizi müşterilerinize o
 ![Alt text](image-68.png)
 ![Alt text](image-59.png)
 ![Alt text](image-60.png)
-![Alt text](image-61.png)
 ![Alt text](image-62.png)
 ![Alt text](image-63.png)
 ![Alt text](image-64.png)
